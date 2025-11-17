@@ -1,4 +1,4 @@
-## The indomitable of human spirit realise
+## The indomitable will of the human spirit realise
 
 <!--
 **flowstateyoga/flowstateyoga** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
